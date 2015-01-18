@@ -8,6 +8,7 @@ large scale collaboration.
 Our Goals
 
 1- To create a directory of Partners
+https://drive.google.com/file/d/0B1dAoobpTmg5OUJPb2dvSXhuTms/view?usp=sharing
 2- To create a list of core competencies for these Partners 
 3- To create a list of priorities for each these Partners
 4- To create a list working plan to fullfil each of these goals
