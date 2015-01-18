@@ -5,7 +5,7 @@ The purpose of this is to bring all of the sustainable partners together to coll
 The internet is a great place if you have hours to do research. This group is dedicated to creating a plan for future 
 large scale collaboration. 
 
-OUr Goals
+Our Goals
 
 1- To create a directory of Partners
 2- To create a list of core competencies for these Partners 
